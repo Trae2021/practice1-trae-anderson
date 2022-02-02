@@ -1,4 +1,4 @@
-# practice1-trae-anderson
+# Practice 1 - Trae Anderson
 Name?
 
 What do you tell people about your field of study at a party?
